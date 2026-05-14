@@ -1,4 +1,4 @@
-#  
+#  premium Scripts for hypershot is the best hypershot Script, featuring auto-collect and private server access. Safe and powerful for all your needs.
 
 
 
